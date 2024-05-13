@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FriendShipEngineer
+- 👀 I’m interested in FullStack + AI + Blockchain
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on Monetate.com
+- 📫 How to reach me egor.ma0130@outlook.com
+- 😄 Pronouns: ????
+- ⚡ Fun fact: I have one Chinese Friend. Hu Fang
