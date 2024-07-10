@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FriendShipEngineer
+- 👋 Hi, I’m @Egor Masiutkin
 - 👀 I’m interested in FullStack + AI + Blockchain
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on Monetate.com
